@@ -1,0 +1,1 @@
+CommonTalks aims at bridging the gap left by religions' diminishing influence on people's lifes, by providing a means to rebuild communities around learning about ourselves and our interactions with others.
