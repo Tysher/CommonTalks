@@ -1,2 +1,2 @@
 # CommonTalks
-Build communities around learning together
+Building communities around mutual learning
