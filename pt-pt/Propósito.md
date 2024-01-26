@@ -1,0 +1,1 @@
+ConversasComuns almeja culmatar o espaço deixado pela diminuição da influencia das religiões nas vidas das pessoas, providenciando um meio de reconstruir comunidades em torno de aprender acerca de nós mesmos e das interações com quem nos rodeia.
